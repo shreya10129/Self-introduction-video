@@ -50,7 +50,7 @@ This repository is intended for:
 📬 Contact
 
 Feel free to connect with me:
-self introductory video link -youtu.be/hKs-oWho4aM
+self introductory video link / https://youtu.be/hKs-oWho4aM
 
 LinkedIn: https://www.linkedin.com/in/shreya-roy-b868672b6
 
